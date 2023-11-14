@@ -5,7 +5,7 @@
 
 - 📫 How to reach me **egocogitio.14gmail.com**
 
-- 📄 Know about my experiences [https://docs.google.com/document/d/1zksUI5khUSu9MNJGsn7_pYEj1CSNsfdF/edit](https://docs.google.com/document/d/1zksUI5khUSu9MNJGsn7_pYEj1CSNsfdF/edit)
+- 📄 Know about my experiences [https://www.canva.com/design/DAF0JnZtThY/kfCSt4wGODaWH15Tl8wIQw/view?utm_content=DAF0JnZtThY&utm_campaign=designshare&utm_medium=link&utm_source=editor](CV Link)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
